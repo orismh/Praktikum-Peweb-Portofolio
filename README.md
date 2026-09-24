@@ -1,6 +1,6 @@
-
+<img width="1258" height="576" alt="Recording 2026-09-24 212628" src="https://github.com/user-attachments/assets/ea41de2e-756c-4ef7-b43d-36ac67f3146f" />
 Beranda
-![Uploading Recording 2026-09-24 212317.gif…]()
+
 
 
 Tentang saya
